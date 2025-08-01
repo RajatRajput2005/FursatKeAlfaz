@@ -1,7 +1,7 @@
 # ✨ FursatKeAlfaz ✨
 
 **_A Heartfelt Shayari & Poetry Community Platform_**  
-🌙 Built with love in just 3-4 sleepy nights 💻☕  
+🌙 Built with love in just  sleepy nights 💻☕  
 📚 A digital mehfil where words come alive and poets find a home.
 
 ---
